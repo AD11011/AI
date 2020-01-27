@@ -1,19 +1,21 @@
 # oUR-voices-will-be-heard
+-
 
-# What to do when you encounter racism in any form 
-# Why do you need to do it 
+# What to do when you encounter discrimination in any form 
 
-For you
+# Why you should report the incident 
+
+For youself
 --- 
 
-for the whole community
+For the whole community
 ---
 
-University Definitions of Misconduct 
+It violates laws, university policies and values 
 ---
 - According to Title IX
 
-# Who are our allies
+# Our allies
 All the organizations supporting us listed alphabetically
 - Asian American Student Association 
 - Black Student Alliance
@@ -26,7 +28,11 @@ All the organizations supporting us listed alphabetically
 - Spiders Against Sexual Assault and Violence
 - WILL* Program
 
-# What we definitely should not do 
+# What to avoid after you encounter discrimation/assault
+- It is advised to avoid contact with the person or group of people who initiated the act of discrimination or assault unless absolutely necessary. 
+- If you find yourself in a situation where the person who initiated the act of discrimination, it is important to have a University official and/or someone you trust present. This way there is at least one witness present in case information needs to be confirmed later on. 
+- You don't owe your offender any of your time to hear out their explanations. It is possible they will try to make you feel guilty for your involvement in the situation or coerce you to do something you don't want to do. 
+
 # How this website works 
 
 # Resources:
@@ -35,5 +41,5 @@ All the organizations supporting us listed alphabetically
 - Westhampton Dean mgenoni@richmond.edu 
 - Conduct Council: sbisese@richmond.edu
 - International Student/Center: konsanit@richmond.edu 
-- Multicultural affair community: tcade@richmond.edu
+- Director of Multicultural Affairs: Dr. Cade tcade@richmond.edu
 - President: ronald.crutcher@richmond.edu 
