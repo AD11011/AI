@@ -3,15 +3,15 @@
 # What to do when you encounter racism in any form 
 # Why do you need to do it 
 
-What is 996?
+For you
 --- 
 
 for the whole community
 ---
 
-misconduct terms
+University Definitions of Misconduct 
 ---
-
+- According to Title IX
 
 # Who are our allies
 All the organizations supporting us listed alphabetically
