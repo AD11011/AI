@@ -1,5 +1,6 @@
 # oUR-voices-will-be-heard
-- introduction 
+explian why I create this: platform with the all the infomation & resources you need to deal with discrimination. To record all incidents so that we do not just forget as time goes.(Ongoing and in the past). To let ppl know they are not alone.
+
 
 # What to do when you encounter discrimination in any form 
 
