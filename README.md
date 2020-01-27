@@ -2,6 +2,17 @@
 
 # What to do when you encounter racism in any form 
 # Why do you need to do it 
+
+What is 996?
+--- 
+
+for the whole community
+---
+
+misconduct terms
+---
+
+
 # Who are our allies
 All the organizations supporting us listed alphabetically
 - Asian American Student Association 
