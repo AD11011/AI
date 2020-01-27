@@ -1,5 +1,5 @@
 # oUR-voices-will-be-heard
--
+- introduction 
 
 # What to do when you encounter discrimination in any form 
 
@@ -13,7 +13,8 @@ For the whole community
 
 It violates laws, university policies and values 
 ---
-- According to Title IX
+-   Title IX
+-  [School policy](https://policy.richmond.edu/documents/policy-pdfs/Public/Governance/policy_prohibiting_discrimination_and_harrassment_for_students.pdf)(page 3)
 
 # Our allies
 All the organizations supporting us listed alphabetically
@@ -34,6 +35,8 @@ All the organizations supporting us listed alphabetically
 - You don't owe your offender any of your time to hear out their explanations. It is possible they will try to make you feel guilty for your involvement in the situation or coerce you to do something you don't want to do. 
 
 # How this website works 
+-  send to my email, guarantede your anonymity unless you specify you want your name published with your submission, I will only check my email and upload contends in public wifi. So there is no tracing back.
+
 
 # Resources:
 ## Organizations to reach out:
