@@ -1,8 +1,14 @@
 # oUR-voices-will-be-heard
+- **History repeats itself because people tend to forget**
+- I want this website to be a platform where one can share their thoughts freely, and also keep an archive of all the incidents that happened(in the past and ongoing) on this campus.
+- We DO NOT want to use this against our school or any individual. Our intention is to keep a clear-structured archive to help our students and school to better reflect on past cases, and to help those that faces discrimination.
+
 
 # What to do when you encounter discrimination in any form 
 - Report! Report! Report!
-- Reach out to any faculty that 
+- You can reach out to any faculty in this campus! 
+- Talk to your friends, we will walk alone when facing racism!
+
 # Why you should report the incident 
 
 For youself
