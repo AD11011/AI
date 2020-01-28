@@ -8,9 +8,13 @@ explian why I create this: platform with the all the infomation & resources you 
 
 For youself
 --- 
+Reporting incidents is to protect **your own safety**.
+
 
 For the whole community
 ---
+Reporting a incident is not only for yourself, but also for the good of our whole community. If one racist gets away without punishments, it will set a bad example for many.
+So we strongly encourage you to stand up and speak out, your brave action will contribute to our diversity, and help end racism which affects every single one of us.
 
 It violates laws, university policies and values 
 ---
