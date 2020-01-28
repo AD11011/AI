@@ -8,8 +8,8 @@ explian why I create this: platform with the all the infomation & resources you 
 
 For youself
 --- 
-Reporting incidents is to protect **your own safety**.
-
+Reporting incidents is to protect **YOUR OWN SAFETY**.
+When you report an incident, you do not have to interact with those who had verbally or physically abused you. This will protect you from any further potential retaliation.
 
 For the whole community
 ---
