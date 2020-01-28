@@ -1,9 +1,8 @@
 # oUR-voices-will-be-heard
-explian why I create this: platform with the all the infomation & resources you need to deal with discrimination. To record all incidents so that we do not just forget as time goes.(Ongoing and in the past). To let ppl know they are not alone.
-
 
 # What to do when you encounter discrimination in any form 
-
+- Report! Report! Report!
+- Reach out to any faculty that 
 # Why you should report the incident 
 
 For youself
@@ -40,7 +39,7 @@ All the organizations supporting us listed alphabetically
 - You don't owe your offender any of your time to hear out their explanations. It is possible they will try to make you feel guilty for your involvement in the situation or coerce you to do something you don't want to do. 
 
 # How this website works 
--  send to my email, guarantede your anonymity unless you specify you want your name published with your submission, I will only check my email and upload contends in public wifi. So there is no tracing back.
+-  Send to my email, guarantede your anonymity unless you specify you want your name published with your submission, I will only check my email and upload contends in public wifi. So there is no tracing back.
 
 
 # Resources:
